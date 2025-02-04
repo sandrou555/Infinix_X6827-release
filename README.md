@@ -1,0 +1,1 @@
+# Infinix_X6827-release
